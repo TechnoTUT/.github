@@ -23,9 +23,9 @@ Visit [technotut.net](https://technotut.net) for more information.
 詳細は、公式HP [technotut.net](https://technotut.net) をご覧ください。
 
 ## Join our team 🚀
-Please come to our club room and sign the member list. There is no membership fee.  
+Please come to our club room and sign the member list.  
 For more information, please visit our [website](https://technotut.net/activity).  
-入部希望の方は、一度部室に来ていただき、部員名簿への署名と捺印をお願いします。部費は一切かかりません。
+入部希望の方は、一度部室に来ていただき、部員名簿への署名と捺印をお願いします。
 
 ## Contact us 📧
 - 𝕏: [@ToyohashiTechno](https://x.com/ToyohashiTechno)
